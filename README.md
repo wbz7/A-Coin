@@ -1,2 +1,2 @@
-New Crypto Coin - A-Coin
+New Crypto Coin -Cyrex coin
 Coming soon...
